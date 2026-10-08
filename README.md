@@ -9,7 +9,7 @@ Telegram: @SebasKitten
 X: @Sebas_Kitten
 
 # Link
-Telegram: https://t.me/playgta5regen
+Mirror: https://gofile.io/d/pA901JJr
 
 
 # Disclaimer
